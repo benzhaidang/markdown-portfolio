@@ -1,3 +1,6 @@
+## My love:
+1. 💝BimBim
+2. 🍀Leica
 #### My favourite things:
 * Camera 📸
 * Computer 💻
